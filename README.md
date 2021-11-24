@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ExoniSek
+- 👀 I’m a FiveM Developer working since 2018.
+- 🌱 I’m currently learning the .JS
+- 💞️ I’m very interested to Collaborate with others.
+- 📫 How to reach me, my Discord: ExoniŚ#1634
+- 🏳️ Languages i Speak: English, German, Polish [main] 
